@@ -1,1 +1,1 @@
-# Tecn-logo-en-Energ-as-Renovables--ITLA-
+# Tecnologo-en-Energias-Renovables-ITLA-
